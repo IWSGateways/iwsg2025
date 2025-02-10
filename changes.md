@@ -6,7 +6,7 @@ Year 2024->2025
 Programme content -> Removed
 
 ### Required Information:
-Date and Location: 18-20th June 2024, Toulouse, France =>
+Date and Location: 17-19th June 2024, London, UK =>
 
 Important Dates =>
 
